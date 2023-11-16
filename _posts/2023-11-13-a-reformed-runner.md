@@ -1,6 +1,6 @@
 ## A reformed runner's view on walking
 
-My wife asked me how I was doing after deciding to not run anymore. I said I kind of miss it but I also don't. There was a lot of back and forth with incomplete thoughts and insights. But after sleeping, rather dozing on it here's where I'm at:
+My wife asked me how I was doing after deciding to stop running (as a form of exercise). I said I kind of miss it but I also don't. There was a lot of back and forth with incomplete thoughts and insights. But after sleeping, rather dozing on it here's where I'm at:
 
 I miss running because...
  - of an error in judgement: speed = good workout.
