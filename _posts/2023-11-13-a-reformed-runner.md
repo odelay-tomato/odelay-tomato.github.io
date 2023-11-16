@@ -17,7 +17,3 @@ I don't miss running because...
 When I really, really looked back at the running I've done since roughly 2006 not much of it felt good. Daily training runs were okay; long runs were not. The cumulative mileage for a half-marathon, a marathon, and a ultra marathon were done by discipline - "If I don't do this now, in the pouring rain, on Christmas Eve, I'm going to pay for it later". That's some wicked thinking.
 
 The epiphany I had while talking with my wife, while walking in the woods, yellow fallen leaves under our feet was that I had a better afinity for, and greater history with, walking. And I hadn't even noticed.
-
-### A (brief) history of my walking
-
-And if I'm really honest, my latest running experience was for an ultra-marathon in the hills near Bellingham, WA I spent more time walking - "Hike the ups, jog the flats, and run the downs".
