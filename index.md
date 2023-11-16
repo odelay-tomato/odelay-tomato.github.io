@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I'm a husband, dad, and amateur windsock calibrator. Sometimes I write about thoughts or feelings or ideas I have on different subjects. Maybe it's a place to just practice writing?
